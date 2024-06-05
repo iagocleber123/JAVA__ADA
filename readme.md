@@ -6,3 +6,5 @@ Git versionaento
 
 
 akteradbo arqyuvo sjdandbainrgwer
+
+salterando essa bençao 
